@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on metaverse
 .
 - 😄 Pronouns: they
-- ⚡ Fun fact: i speak 
+
  
