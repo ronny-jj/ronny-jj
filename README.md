@@ -7,7 +7,6 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on elixr
 - 🌱 I’m currently learning powerbi
 - 👯 I’m looking to collaborate on metaverse
-.
 - 😄 Pronouns: they
 
  
